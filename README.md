@@ -1,2 +1,0 @@
-# November-batch
-practice 
